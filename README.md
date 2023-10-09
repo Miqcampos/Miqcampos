@@ -1,6 +1,7 @@
 ### Olá! meu nome é Miquéias 😄👋🌙
 
-![pexels-alex-fu-1302435](https://github.com/Miqcampos/Miqcampos/assets/145502751/b11a647b-1194-440a-9045-ede4ce93893e)
+![pexels-pixabay-270404](https://github.com/Miqcampos/Miqcampos/assets/145502751/562c0d72-9e73-46f8-ab0b-4a2c0c84e5f1)
+
 
 
 
