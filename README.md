@@ -1,6 +1,7 @@
 ### Olá! Seja bem-vindo 😄👋🌙
 
-![pexels-pixabay-270404](https://github.com/Miqcampos/Miqcampos/assets/145502751/562c0d72-9e73-46f8-ab0b-4a2c0c84e5f1)
+![430915](https://github.com/Miqcampos/Miqcampos/assets/145502751/e6ffef8b-3a04-469d-be87-fb52f06a1196)
+
 
 
 
